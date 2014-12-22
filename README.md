@@ -35,22 +35,28 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Encouragements. For such as shall have intention to bee vnder-takers in the new plantation of Cape B
+TO THE RIGHT VVORSHIPFVLL. SIR WILLIAM ALEXANDER of Menſtrie Knight. Maſter of Requeſtes for Scotlan
+1. TO THE ADVENTVRERS, FAVOVrers, and well-willers of the enterpriſe for the inhabiting, and planting in Cape Briton, now New Galloway in America.
+
 #####Body#####
 
-1. MOTIVE I.
+1. THE MOTIVES, which hath induced mee, and may happilie encourage ſuch as haue intention to bee Vnder-takers with Mee in the plantation of New GALLOWAY in AMERICA.
 
-1. MOTIVE II.
+    _ MOTIVE I.
 
-1. MOTIVE III.
+    _ MOTIVE II.
 
-1. ARTICLE 1.
+    _ MOTIVE III.
 
-1. ARTICLE II.
+1. DREAD GOD 1625
 
-1. ARTICLE III.
+    _ ARTICLE 1.
 
-1. ARTICLE IIII.
+    _ ARTICLE II.
+
+    _ ARTICLE III.
+
+    _ ARTICLE IIII.
 AND laſt, I deſire that all ſuch, as ſhall imbrace the foreſaids offers, may come vnto mee before th
 **Types of content**
 
